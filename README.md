@@ -1,2 +1,3 @@
-# saddamhossain
-MPA student focused on public policy, governance, and research projects
+Hi, I'm Saddam Hossain
+🎓 Master of Public Administration (MPA) Student
+📍 Based in the United States | Experience in Bangladesh & Qatar
